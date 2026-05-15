@@ -3,5 +3,6 @@
 BS in Natural Resource Management, minor in Sustainability  
 joy & whimsy
 
-* maliagoldstandard@gmail.com
+* [Gmail](maliagoldstandard@gmail.com)
 * @souperable
+* [Website Name](websitelink.com)
