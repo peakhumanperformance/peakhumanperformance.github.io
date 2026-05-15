@@ -1,5 +1,7 @@
 # Malia Goldstein
 
+![alt text](image pathway)
+
 BS in Natural Resource Management, minor in Sustainability  
 joy & whimsy
 
